@@ -152,7 +152,7 @@ MIT License - see LICENSE file
 
 **Phuc Sinh**  
 Digital Marketing | Growth Strategy  
-[LinkedIn]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/phuc-sinh-le/)) | [Facebook]([https://twitter.com/yourhandle](https://www.facebook.com/phucsinhlee/))
+[LinkedIn](https://www.linkedin.com/in/phuc-sinh-le/) | [Facebook](https://www.facebook.com/phucsinhlee/)
 
 ---
 
